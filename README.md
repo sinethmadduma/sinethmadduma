@@ -19,5 +19,4 @@ CONNECTING THE DOTS.
 
 Thanks,
 
-
 Sineth Madduma.
